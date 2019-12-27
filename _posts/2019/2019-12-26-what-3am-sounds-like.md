@@ -27,9 +27,3 @@ description: What 3am Sound Like
 
 <blockquote>Davis held the sessions from ten in the morning to one in the afternoon. Recording in the morning was rare for any musician, and resulted in some grumblings, but he needed his crew fresh and away from the daily distractions they could bring with them. Miles also did not want any disruptions from people hanging around the place, so he closed the studio off to writers, photographers, friends, and ladies. Despite the early start, Miles built an ambience similar to an all-night jam session. “What’s amazing is the mood,” recalled Corea. “If I didn’t know, I’d say this went down at three in the morning.&#34;
 </blockquote>
-
-<p><a href="https://write.as/poseur-to-composer/tag:reading" class="hashtag" rel="nofollow"><span>#</span><span class="p-category">reading</span></a> <a href="https://write.as/poseur-to-composer/tag:music" class="hashtag" rel="nofollow"><span>#</span><span class="p-category">music</span></a></p>
-
-<hr>
-
-<p>Consider <a href="https://rejectiontherapy.us2.list-manage.com/subscribe?u=bc7fdf29a4610b493fd5b2783&amp;id=2f07782ec1" target="\_blank" rel="nofollow"><u>subscribing to my newsletter</u></a> or <a href="https://write.as/poseur-to-composer/feed/" rel="nofollow"><u>follow this blog by RSS</u></a>  in your favorite RSS feed reader.</p>
