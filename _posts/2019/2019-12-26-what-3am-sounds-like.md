@@ -13,7 +13,7 @@ description: What 3am Sound Like
 ---
 
 <p><img src="https://i.snap.as/FEbubdu.png" alt="">
-<i>Miles Davis, Bitches Brew. Photo by <a href="https://www.flickr.com/people/dou_ble_you/" target="\_blank" rel="nofollow"><u>dou<em>ble</em>you</u></i></p>
+<i>Miles Davis, Bitches Brew. Photo by <a href="https://www.flickr.com/people/dou_ble_you/" target="\_blank" rel="nofollow"><u>dou<em>ble</em>you</u></a></i></p>
 
 <p>Switching from days to nights and <a href="https://write.as/poseur-to-composer/what-it-takes-to-make-art" rel="nofollow"><u>learning my new role at the homeless shelter</u></a> derailed my creative work and forced me to <a href="https://write.as/poseur-to-composer/about" rel="nofollow"><u>break my promise</u></a>, but I&#39;m back.</p>
 
